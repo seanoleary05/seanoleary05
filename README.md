@@ -1,1 +1,1 @@
-## South East Technological University
+### South East Technological University
