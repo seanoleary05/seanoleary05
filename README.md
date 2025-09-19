@@ -1,1 +1,3 @@
-### South East Technological University
+### SETU Waterford
+## SETU Waterford
+# SETU Waterford
